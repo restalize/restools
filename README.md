@@ -1,3 +1,5 @@
-## Welcome to my garage fellow designer, what you need to build
+## Welcome to my garage
+fellow designer, what you need to build
 
-### my tools are missing for now :( get back later
+###cool,
+but i can't help you now, good luck with that :D
