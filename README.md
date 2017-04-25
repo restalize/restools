@@ -1,8 +1,4 @@
 ### Welcome to my garage
-my fellow designer, what do you need to build your shit?
-
-### Cool!,
-good luck with that :D
 
 ### UI / Web Design Inspiration
 https://dribbble.com/StelianSubotin
